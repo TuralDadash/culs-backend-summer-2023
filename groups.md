@@ -38,3 +38,13 @@ John Marfo
 - Tegegn Addiskidan
 - Arpana Shanta
 - Md Sahadat Hossain Sagor
+
+
+### T-Group
+
+- Tural Dadashzade
+- Samet Yildizeli
+- Bilge Dogan
+- Mert Yenilmez
+
+---
